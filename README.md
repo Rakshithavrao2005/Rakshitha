@@ -1,2 +1,3 @@
 # Rakshitha
-studying in vemana it 
+i am studying in vemana it.
+i love dancing,cooking,sleeping.
